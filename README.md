@@ -1,4 +1,4 @@
 # Mufasa
 
 Hello Homosapiens!
-Am love playing football and video games
+i love playing football and video games
